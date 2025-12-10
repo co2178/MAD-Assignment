@@ -1,4 +1,6 @@
 # MAD-Assignment
-Group name
-Liya ,
+Group Member
+
+Liya 
+
 Alemtsehay kassahun
