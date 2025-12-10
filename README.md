@@ -1,6 +1,14 @@
 # MAD-Assignment
 Group Member
 
-Liya 
+Eyasu Ephrem
+
+Matewos Belachew 
+
+Tigist Kassa
+
+Yonas Woldegebreal
 
 Alemtsehay kassahun
+
+Liya Mekbib
